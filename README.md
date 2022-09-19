@@ -3,3 +3,4 @@
 
 - 🤔 I’m looking for help with  verilog
 
+- How to reach me- simmysatwik03@outlook.com
